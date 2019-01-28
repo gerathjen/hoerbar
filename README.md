@@ -1,1 +1,1 @@
-Dokumente zur Suegburger Hörbar test
+Dokumente zur Suegburger Hörbar
